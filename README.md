@@ -1,1 +1,1 @@
-# Tedonzong-et-al-2018-Great-apes-coexistence-Ecology-and-Evolution
+# Tedonzong-et-al-2018-Great-apes-coexistence
